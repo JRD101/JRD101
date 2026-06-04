@@ -1,1 +1,1 @@
-![](https://raw.githubusercontent.com/JRD101/JRD101/main/card.svg)
+![](https://raw.githubusercontent.com/JRD101/JRD101/main/MyProfile.svg)
